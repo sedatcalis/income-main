@@ -10,7 +10,10 @@
 
 
 
-![](CODER.gif)
+https://github.com/sedatcalis/income-main/assets/140658531/1c21ee06-30e2-42c0-96d3-68d28959ade8
+
+
+
 
 # satiskontrol
 # income
